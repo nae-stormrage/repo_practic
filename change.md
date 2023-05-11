@@ -1,0 +1,1 @@
+neskolko simvolov
